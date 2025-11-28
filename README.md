@@ -1,1 +1,1 @@
-https://fanllon25.github.io/testysotest/
+https://fanllon25.github.io/softai/
